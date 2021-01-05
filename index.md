@@ -1,37 +1,13 @@
-## Welcome to GitHub Pages
+## Randomly Accessed Memories
 
-You can use the [editor on GitHub](https://github.com/SNaveenMathew/randomly_accessed_memories/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+**Disclaimer:** Please do not confuse this page with [this book](https://www.amazon.com/Randomly-Accessed-Memories-Chance-Encounters-ebook/dp/B007JW8Q9E) by Jeff Burkhart
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+This webpage will be used to track vivid memories from my past that randomly popup in my mind. This is my rough note book that's available to everyone, not my personal diary. Memories will be documented in the form of short and fragmented write-ups. The write-ups may or may not have takeaways / morals, but will be a true and unbiased documentation of real events. Names of people and organizations will be anonymized out of respect to the high moral and ethical values they hold in their lives.
 
-### Markdown
+The memories fall under the following categories (links write-ups that fall under multiple topics will be posted under each topic):
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/SNaveenMathew/randomly_accessed_memories/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+- [Volleyball](volleyball.md), one of the greatest things about my life for ~ 20 years
+- [IIT Madras](iitm.md), the 4 years that led to the highest percentage growth in my life!
+- [Miracles](miracles.md), the most probable outcome of hard work and perseverence with very little left to 'chance'
+- [F-school days](f_school.md), remembering the attempts made by others to convert me into a factory output
+- [Workplace(S)](workplaces.md) with a capital 'S' to denote how many times I was forced to change
