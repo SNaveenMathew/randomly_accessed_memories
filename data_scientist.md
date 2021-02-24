@@ -10,7 +10,7 @@ Note: Few stories (not all) are exaggerated to (hopefully) enhance the impact. I
 
 ### A personal story
 
-The article ["Using statistics to catch cheats and criminals"](https://physicstoday.scitation.org/do/10.1063/PT.5.010218/full/) reminds me of a cause that I stood for in 2014-15 that was blatant. The effects of the 'varoables' were *significant* beyond doubt. "Powerful people" were doing what they always do - abusing their power. Though the "agitation" was limited to a Facebook post and did not lead to significant change in behavior of "powerful people", it turned out to be a (emotionally) memorable event.
+The article ["Using statistics to catch cheats and criminals"](https://physicstoday.scitation.org/do/10.1063/PT.5.010218/full/) reminds me of a cause that I stood for in 2014-15 that was blatant. The effects of the 'variables' were *significant* beyond doubt. "Powerful people" were doing what they always do - abusing their power. Though the "agitation" was limited to a Facebook post and did not lead to significant change in behavior of "powerful people", it turned out to be a (emotionally) memorable event.
 
 The affected people (majority, ~300 out of ~350) implicitly acknowledged the injustice, but never managed to voice their concerns in a structured way. During that phase of life I had nothing to lose, so I decided to write about the injustice on Facebook. Despite the best efforts of the "powerful people" I did not delete the post. The response from the exploited people was a pleasant surprise. In support of the agitation several people liked the post and unliked it within seconds in order to remove any publicly quotable evidence.
 
