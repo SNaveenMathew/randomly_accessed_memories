@@ -6,6 +6,7 @@ This webpage will be used to track vivid memories from my past that randomly pop
 
 The memories fall under the following categories (links write-ups that fall under multiple topics will be posted under each topic):
 
+- Stories of a [(Data) Scientist](data_scientist.md)
 - [Volleyball](volleyball.md), one of the greatest things about my life for ~ 20 years
 - [IIT Madras](iitm.md), the 4 years that led to the highest percentage growth in my life!
 - [Miracles](miracles.md), the most probable outcome of hard work and perseverence with very little left to 'chance'
