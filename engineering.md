@@ -2,7 +2,7 @@
 
 12th March 2021
 
-Finally! A no nonsense article. Trust me, this is a true story (unlike some of the other stories that have exaggerations). This is the story that inspired me to live the way I'm living and to write.
+Finally! A no nonsense article. Trust me, this is a true story (unlike some of the other stories that have exaggerations). This is the story that inspired me to live the way I'm living and to write unfiltered accounts on 'randomly accessed memories'.
 
 Disclaimer:
 
@@ -13,7 +13,7 @@ Disclaimer:
 
 The commonly heard (and misinterpreted) version: "Anything that can go wrong will go wrong"
 
-The story starts in 2014. I was back to the F-school to finish up the course work after a heart-wrenching internship. Soon I was engulfed in an administrative issue and forced into a mentally unstable state. My mental state requires elaboration - I will try my best to points to explain:
+The story starts in 2014. I was back to the F-school to finish up the course work after a heart-wrenching internship. Soon I was engulfed in an administrative issue and forced into a mentally unstable state. My mental state requires elaboration - I will try my best to explain:
 
 ## My mental state
 
