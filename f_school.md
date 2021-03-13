@@ -9,3 +9,4 @@ To the F-school administrators who are reading this: I don't want this to be a m
 WLOG (without loss of generality for the unenlightened), let's get started:
 
 - [ML career switch](ml_career_switch.md): I can be not-so-useful sometimes
+- [Why engineering?](engineering.md): The true story that inspired me to write
