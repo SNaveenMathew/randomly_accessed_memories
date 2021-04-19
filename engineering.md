@@ -83,7 +83,7 @@ During the last few days of F-school, I risked rustication and represented the F
 
 What happened to my career? I decided to risk my career trying to switch back to engineering. I chose data science - a route that had a much lower risk than a mission to Mars or a building construction project. But the path was not smooth. It took strong belief in my goals, stubborn resistance to mediocrity, and stubborn resistance to parents by trading off short term rewards (becoming a manager who doesn't have to know anything) for **long term** returns (becoming a scientists who knows something) to get to where I am. It all started with broken specs and a refusal to give up. NO! It all started when I was a child, when my curiosity drove me to think "What does this button do?", and my stubbornness occasionally drove me to push the button and to go back home with electric hair.
 
-![Electric hair](data/electric-hair-2.jpeg)
+![Electric hair. For illustraction only. This is not me!](data/electric-hair-2.jpeg)
 
 My urge to write this story led me to start the 'randomly accessed memories' page. Even today this story holds an important place in my mind, and the learnings have become an integral part of my life and career. I shed tears as I write this story, but, more importantly, I find enormous strength in myself to **overcome the odds**. As of today, that small fix, that small victory, is the greatest victory of my life.
 
