@@ -8,6 +8,7 @@ The memories fall under the following categories (links write-ups that fall unde
 
 - Stories of a [(Data) Scientist](data_scientist.md)
 - [Volleyball](volleyball.md), one of the greatest things about my life for ~ 20 years
+- [Volunteering](volunteering.md), nobody else can play my role
 - [IIT Madras](iitm.md), the 4 years that led to the highest percentage growth in my life!
 - [Miracles](miracles.md), the most probable outcome of hard work and perseverence with very little left to 'chance'
 - [F-school days](f_school.md), remembering the attempts made by others to convert me into a factory output
