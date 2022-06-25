@@ -14,3 +14,4 @@ The memories fall under the following categories (links write-ups that fall unde
 - [F-school days](f_school.md), remembering the attempts made by others to convert me into a factory output
 - [Workplace(S)](workplaces.md) with a capital 'S' to denote how many times I was forced to change
 - [Travel](travel.md): random strolls that took me nowhere, unplanned trips that went well, (hyper)planned trips that didn't go well
+- [What the work are you doing?](workplace_stories.md)
