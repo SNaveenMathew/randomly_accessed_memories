@@ -8,7 +8,7 @@ A non-technical manager once said "Tech people cannot talk" (tech people are inc
 
 From [Dilbert principle](https://en.wikipedia.org/wiki/Dilbert_principle) and the closely associated [Peter principle](https://en.wikipedia.org/wiki/Peter_principle) we infer that:
 
-1. A non-technical Dilbert is known to be unproductive. They are expressly put in managerial roles and promoted quickly to get their inefficiencies out of the way
+1. A non-technical Dilbert is known to be unproductive. He/she is expressly put in managerial roles and promoted quickly to get his/her inefficiencies out of the way
 2. A technical Peter is expected to 'choke' in managerial roles due to the lack of experience in management compared to a Dilbert
 
 Coming back to the statement, we're talking about an average Dilbert commenting on an average Peter. Should this be taken to heart? NO, JUST CHILL!
