@@ -2,28 +2,28 @@
 
 12th March 2021
 
-Finally! A no nonsense article. Trust me, this is a true story (unlike some of the other stories that have exaggerations). This is the story that inspired me to live the way I'm living and to write unfiltered accounts on 'randomly accessed memories'.
+Finally! A no nonsense article. Trust me, this is a true story (unlike some of the other stories that have exaggerations). This is the story that inspired me to live the way I'm living, and to write unfiltered stories on 'randomly accessed memories'.
 
 Disclaimer:
 
-1. Nobody (at work)... I mean nobody has truly seen my emotional side. This story is going to be different. Seven years ago the conclusion brought me to my knees and brought tears (of joy) to my eyes... It still does...
-2. The term *bonded* is used loosely in this story
+1. Nobody (at work)... I mean nobody has truly seen my emotional side. This story is going to be different. Seven years ago the conclusion brought me to my knees and brought tears (of joy) to my eyes... It still has the same effect...
+2. The term *bonded* is used loosely in this story. It may not refer to chemical bonding
 
 **[Murphy's law](https://en.wikipedia.org/wiki/Murphy%27s_law)**:
 
 The commonly heard (and misinterpreted) version: "Anything that can go wrong will go wrong"
 
-The story starts in 2014. I was back to the F-school to finish up the course work after a heart-wrenching internship in which mediocre people on top refused to accept my report just because it was too much for them to understand. Soon after, once I returned to the F-school, I was engulfed in an administrative issue and forced into a mentally unstable state. My mental state requires elaboration - I will try my best to explain:
+The story starts in 2014. I was back to the F-school to finish up the course work after a heart-wrenching internship in which mediocre people on top refused to accept my report just because it was too difficult for them to understand. Soon after, once I returned to the F-school, I was engulfed in an administrative issue and forced into a mentally unstable state. My mental state requires elaboration - I will try my best to explain:
 
 ## My mental state
 
-1. I started losing trust in the system. In fact, I started believing that the system was designed to screw ME and everyone in support of ME
-2. I started losing trust in people - family, friends, backstabbers, enemies, everyone... I stopped meeting or talking to the people who matter the most to me. I preferred living alone.
+1. I started losing trust in the system. In fact, I started believing that the system was designed to screw ME and to screw everyone in support of ME
+2. I started losing trust in people - family, friends, backstabbers, enemies, everyone... I stopped meeting or talking to the people who matter the most to me. I preferred living alone
 3. I gave up every activity I was passionate about - volunteering, volleyball, (and more) ... I lost interest in every other activity I was interested in - science, fitness, (junk) food, listening to music, (and more) ...
-4. I started feeling an urge to get things done quickly and to move on to the next issue. I could not realize or understand the long term rewards of anything - passion, health, friendship, relationship, love, ...
-5. I did not pay attention to my health. I did not eat more than once a day. Sometimes I slept for over 12 hours a day; sometimes, without any purpose, I slept less than 2 hours a day
-6. I skipped as many classes as I could because I had no interest in what was being taught. I used to attend classes to satisfy the minimum attendance, and slept during most of the classes. Naturally, my grades were on a downward slide
-7. As a result of the administrative issue, I was banned from representing the F-school, with the downside that I would be rusticated if I represented the F-school name in any way. But I tried to pursue few activities. **Paranoia of being digitally tracked took over my mind. I spent majority of the day looking for listening bugs and other spying devices in my room. I stopped all using data related services on my smart phone and turned off as many background services as I could**
+4. I started feeling an urge to get things done quickly and to move on to the next issue. I could not realize or understand the long term rewards of anything - passion, health, friendship, family, ...
+5. I did not pay attention to my health. I ate at most once a day. Sometimes I slept for more than 12 hours a day; sometimes, without any purpose, I slept less than 2 hours a day
+6. I skipped as many classes as I could because I had no interest in what was being taught at the F-school. I used to attend classes to satisfy the minimum attendance; I slept during most of the classes. Naturally, my grades were on a downward slide
+7. As a result of the administrative issue, I was banned from representing the F-school, with the added clause that I would be rusticated if I represented the F-school name in any way. When I tried to pursue few activities, **paranoia of being digitally tracked took over my mind. I spent majority of the day looking for listening bugs and other listening/spying devices in my room. I stopped all using data related services on my smart phone and turned off as many background services as I could**
 8. **I started noticing every irrelevant (noisy) change around me. Meanwhile, my attention to important details started decreasing**
 9. **I stopped sharing or caring**
 10. **I saw no purpose in life**
@@ -32,21 +32,23 @@ The story starts in 2014. I was back to the F-school to finish up the course wor
 13. I did not recall the last time I smiled
 14. **Sometimes I felt extreme head ache. The ache did not go away after resting / sleeping**
 15. **Sometimes I felt the need to express emotions - like smiling or crying, but I felt I had no joy or tears**
-16. I did not believe in motivational speakers (still true). I did not read books. I had no reliable source for solutions
+16. I did not believe in motivational speakers (still true). I did not read books. I had no reliable sources for solving my problems
 
-My paranoia hit its peak when I assumed every single conversation was recorded and used as evidence against me. At the same time, I started noticing my sloppiness in trivial aspects like walking - I stumbled at a higher rate than usual (mostly because I hurried to get out of others' sight). As a result, **I was convinced that every single event was a conspiracy to bring me down** (for people who don't underestand this, a single major event with a negative outcome is not as bad as a collection of several negative events that happen simultaneously in a seemingly related way). I lost every single form of sanity, hope and peace. Due to my poor grades I was convinced that I will remain jobless FOREVER. I had only two things - a body and life, and nothing to look forward to.
+My paranoia hit its peak when I assumed every single conversation was recorded and used as evidence against me. At the same time, I started noticing my sloppiness in trivial aspects like walking - I stumbled at a higher rate than usual (mostly because I hurried to get out of others' sight). As a result, **I was convinced that every single event was a conspiracy to bring me down** (for people who don't understand this psychology - a single major event with a negative outcome is not as bad as a collection of several negative events that happen simultaneously in a seemingly related way). I lost every single form of sanity, hope and peace. Due to my poor grades I was convinced that I will **remain jobless FOREVER**. I had only two things - a body and a life, but nothing to look forward to.
 
 ## The trigger - a small event
 
-My natural eyesight was not perfect; I wore spectacles. I never found them where I used to store them in my room. Combined with my paranoia and my hastiness, I felt extremely annoyed when I failed to find them quickly.
+My eyesight was not perfect; I wore spectacles. I'm never used to finding them where I usually store them in my room (yeah, I'm clumsy). Combined with my paranoia and my hastiness, I felt extremely annoyed when I failed to find them quickly.
 
 **Around three months into my mental problems:**
 
-Another mundane day of classes ended. I slept through most sessions and returned to my room in the afternoon. As usual, I lost sight of my spectacles. I was extremely annoyed that I could not find the spectacles. I decided to give it a break and went to bed. As soon as I sat on the bed, I felt something cracking under my ass. No bonus for guessing - my spectacles were on my bed, and I sat on them and broke the frame about the right hinge. The tiny screw hole on the right side was broken and there was no way to fix it.
+Another mundane day of classes ended. I slept through most sessions and returned to my room in the afternoon. As usual, I lost sight of my spectacles. I was extremely annoyed that I could not find them. I decided to give it a break and went to bed. As soon as I sat on the bed, I felt something cracking under my ass. No bonus points for guessing - my spectacles were on my bed. I broke the frame around the right hinge. The tiny screw hole on the right side was broken and there was no way to fix it by myself.
 
-The right lens came out of the socket, but it was not damaged. The fix solution was straight forward - purchase a new frame and fit the lens. But, with my mental state, this was unacceptable. I had failed multiple times. My mind said "Enough is enough". I had to fix it by myself; failure was not acceptable. But my mind was planning for failure. The conversation in my mind went like this: "What if I fail?" -> "I will wear the specs without the right handle and lens" -> "That doesn't work. My right lens has a higher power, and the purpose of wearing the specs was to compensate for the difference" -> "I've given enough trouble for people around me, I cannot seek their help" -> "There's no choice; I have to fix it by myself".
+The right lens came out of the socket, but it was not damaged. The fix was straight forward - purchase a new frame and fit the lens. But this was never an option given my mental state (when the mind is clogged it isn't trivial to see all the available options). I had failed multiple times. My mind said "Enough is enough". I had to fix it by myself
 
-### Superglue to the rescue
+Failure to fix the frame was not acceptable, but my mind was planning for failure. The thoughts in my mind went like this: "What if I fail?" -> "I will wear the specs without the right handle and lens" -> "That doesn't work. My right eye has a higher power, and the purpose of wearing the specs was to compensate for the difference" -> "I've given enough trouble for people around me, I cannot seek their help" -> "There's no choice; I have to fix it by myself".
+
+### Superglue to the rescue (read: rhyming!)
 
 I bought five packs of superglue from a store. I don't recall the onward or return journey; I don't remember the walk back to my room; I don't remember any significant event around the trigger - extremely uncharacteristic of me. My mind was filled with the task at hand  - to fix the specs. In my mind there was no perceived reward for fixing it, but there was a severe penalty for failure.
 
@@ -54,7 +56,7 @@ I added a drop of superglue on one side of the broken hinge and pressed the othe
 
 ### Done and dusted?
 
-A part of me told me not to give up, but it was an empty thought. "What do I prove to myself if I don't have positive results?". "What do I prove to others if I cannot prove anything to myself?". At this point in life I was worried about others' perception of my actions and 'success'. When a person is depressed, paranoid, hopeless and unstable, negative reinforcement loop kicks in, bringing more negative thoughts. I remembered the previous occurrence of sustained mental depression that lasted more than 1 month during IIT days. I recalled that the flora and fauna at IIT brought me back from the depression. There was no such escape in Gurgaon; I realized I was stuck.
+A part of me told me not to give up, but it was an empty thought. "What do I prove to myself if I don't have positive results?". "What do I prove to others if I cannot prove anything to myself?". This was a point in life when I was worried about others' perception of my actions. When a person is depressed, paranoid, hopeless and unstable, negative reinforcement loops kick in, bringing more negative thoughts. I remembered the previous occurrence of sustained mental depression that lasted more than 1 month during IIT days. I recalled that the flora and fauna at IIT brought me back from the depression. There was no such escape in Gurgaon; I realized I was stuck.
 
 ## The solution is in the failure
 
@@ -64,7 +66,7 @@ Few hours later I was up again, trying to fix the broken hinge. I had no bright 
 
 After few iterations with superglue, thread and rubber band, I came to terms that I cannot fix it. A baseless thought in my mind said "Alright, now that it's broken for good, why don't I experiment on it?". "Alright, a sheet of paper screwed my fingerprints. Why don't I used it to screw with the hinge? Let me stick paper on both sides and screw with the hinge". So, I took a large sheet of paper, applied superglue on one side of the broken hinge and pressed it on the sheet of paper - they *bonded* very quickly and effectively. Similarly, I *bonded* the other side of the hinge with another sheet of paper. I had two oversized sheets of paper hanging on either sides of the hinge. I was mildly pleased that something worked during an otherwise depressing day. I did not realize that I solved the problem!
 
-Even though the sheets of paper were very strongly *bonded* to either sides of the broken hinge, I could not connect the dots. I was staring at the individual pieces for 30 minutes. The bond was so strong that I found it extremely hard to pull the extra paper from either side of the hinge. I used a pair of scissors to cut away the extra paper on both sides. In the process, I had an awakening - during the experiment I realized that paper *bonded* well with the metallic frame; purely by accident I realized that paper and paper *bonded* well. Eureka! I applied superglue on the unbonded side of the paper on one side of the hinge, and pressed it with the unboded paper on the other side of the hinge. The glue started drying and *bonding* quickly. I quickly aligned the ear supports on both sides and allowed it to dry. At this instant I had an unexplainable feeling of joy and sadness. I held the specs by the right ear support and found that it could support 100% of the weight. Finally, I was successful!
+Even though the sheets of paper were very strongly *bonded* to either sides of the broken hinge, I could not connect the dots. I was staring at the individual pieces for 30 minutes. The bond was so strong that I found it extremely hard to pull the extra paper from either side of the hinge. I used a pair of scissors to cut away the extra paper on both sides. In the process, I had an awakening - during the experiment I realized that paper *bonded* well with the metallic frame; purely by accident I realized that paper and paper *bonded* well. Eureka! I applied superglue on the unbonded side of the paper on one side of the hinge, and pressed it with the unbonded paper on the other side of the hinge. The glue started drying and *bonding* quickly. I quickly aligned the ear supports on both sides and allowed it to dry. At this instant I had an inexplicable feeling of joy and sadness. I held the specs by the right ear support and found that it could support 100% of the weight. Finally, I was successful!
 
 ## The realization
 
